@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DogeKingII
 - 👀 I’m interested in Hacking
 - 🌱 I’m currently learning The Secrets Of The Universe
-- 💞️ I’m looking to collaborate on anything HMU
+- 💞️ I’m looking to collaborate on Anything Hit Me Up
 - 📫 How to reach me DogeKingIII@protonmail.com
